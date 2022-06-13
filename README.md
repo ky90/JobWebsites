@@ -11,6 +11,6 @@ Mostly the jobs are remote only.
 7. https://www.works-hub.com/
 
 ## Others 
-If you have extra job website, please don't hesitate to share.
-
+If you have other job websites I am not metioned here, please don't hesitate to share. </br> 
+Thanks you. 
 
